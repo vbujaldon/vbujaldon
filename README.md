@@ -1,4 +1,4 @@
-# Hi, I'm Vanessa Bujaldon 
+# Hi, I'm Vanessa Bujaldon 👋
 
 ### Data Analyst · Business & CRM Data · Data Quality · Sustainability & Geospatial Data
 
